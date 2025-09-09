@@ -9,3 +9,5 @@
 # 4 - Entropy and Randomness Analyzer – Boost Your Security Confidence Online >> https://0xgz.com/entropy-and-randomness-analyzer/
 
 # 5 - Advanced URL Phishing and Security Link Analyzer – Stay Safe Online >> https://0xgz.com/advanced-url-phishing-and-security-link-analyzer/
+
+# 6 - Best Online CV Builder Tool to Create Professional Resumes Instantly >> https://0xgz.com/online-cv-builder-tool-to-create-professional-resumes/
